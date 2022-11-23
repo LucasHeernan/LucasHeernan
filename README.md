@@ -12,5 +12,4 @@ I consider myself a committed and persevering person when it comes to meeting th
 📭 lhbenitez2@gmail.com
 🛎️ www.linkedin.com/in/lucas-hernan-benitez
 
-
-![imagen](https://user-images.githubusercontent.com/88211410/203498949-b5c7bffc-9c77-458c-b476-8780c178ad85.png)
+![WhatsApp Image 2022-11-22 at 23 52 05](https://user-images.githubusercontent.com/88211410/203499627-019223d1-49fd-4c64-a744-2da1dad2bb0c.jpeg)
