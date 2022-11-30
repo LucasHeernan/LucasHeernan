@@ -12,8 +12,8 @@ I consider myself a committed and persevering person when it comes to meeting th
 
 🕵🏼 How to contact me? 👇🏼
 
-📞 +549 11 34921341
-📭 lhbenitez2@gmail.com
+📞 +549 11 34921341 
+📭 lhbenitez2@gmail.com 
 🛎️ www.linkedin.com/in/lucas-hernan-benitez
 
 
