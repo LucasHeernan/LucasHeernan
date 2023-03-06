@@ -1,6 +1,6 @@
 🎤 Who am I?
 
-👋🏼 Hello, my name is Lucas, I'm a Full Stack developer with a Front end orientation. I am looking for my first job in the IT field with aspirations to further expand the knowledge already obtained. I'm looking to join a team from which I can learn their skills and qualities.
+👋🏼 Hello, my name is Lucas, I'm a Full Stack developer with a Front end orientation. I'm looking for my first job in the IT field with aspirations to further expand the knowledge already obtained. I'm looking to join a team from which I can learn their skills and qualities.
 
 🛠 What technologies do I use?
 
